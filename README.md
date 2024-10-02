@@ -84,6 +84,6 @@ https://drive.google.com/file/d/1OBh2Hk1X3vYVW4IfPHxc6ysN28wUXDIR/view?usp=drive
 
 
 <h3>서비스시현</h3>
-https://drive.google.com/file/d/1G58TfTKgdzPj1DAigf5Es-kb299Kmjw1/view?usp=drive_link
+https://youtu.be/4cPTiI72H0k
 
 
